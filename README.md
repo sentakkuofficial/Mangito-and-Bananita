@@ -20,3 +20,6 @@ Now Bananita sees him again for the first time.
 - beg / leave
 
 Part 1 ends with a cliffhanger.
+
+
+https://sentakkuofficial.github.io/Mangito-and-Bananita/
